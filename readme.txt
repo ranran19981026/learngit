@@ -1,4 +1,4 @@
 jihaoran
 zhaoshuai
 gaofeng
-chine
+chi
